@@ -97,9 +97,5 @@ Email: mahbubhasanabid00@gmail.com
 Telegram: @mhabid00
 WhatsApp: Click here
 LinkedIn: Mahbub Hasan Abid
-Screenshorts
-Registation page: reg LogIn Page: log in Home Page: home page screen short
-
-about Us: about us Main Shop: Shop Contact Us: contact page Cart Page: cart Page Order Page: order Demo Invoice download as pdf: pdf PayPal Sandbox Payment Demo: pay now pay now2 pay now 3 Search Page: search page Check Out Page: check out
 
 
